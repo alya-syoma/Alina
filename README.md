@@ -13,9 +13,9 @@
 
 - [🔗 Інтернет-магазин айфонів ](https://portfoliokwd.tilda.ws/iphone) 
 - [🔗 Клінінг ](https://portfoliokwd.tilda.ws/clining) 
-- [🔗 Доставка суші] (https://portfoliokwd.tilda.ws/sushi) 
-- [🔗 Медсестра на дім] (https://portfoliokwd.tilda.ws/domashnyamedsestra) 
-- [🔗 Польоти на повітряній кулі] (https://portfoliokwd.tilda.ws/) 
+- [🔗 Доставка суші ] (https://portfoliokwd.tilda.ws/sushi) 
+- [🔗 Медсестра на дім ] (https://portfoliokwd.tilda.ws/domashnyamedsestra) 
+- [🔗 Польоти на повітряній кулі ] (https://portfoliokwd.tilda.ws/) 
 
 
 
